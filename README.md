@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ashutoshs14
 - 👀 I’m interested in everything
-- 🌱 I’m currently learning many thinga
+- 🌱 I’m currently learning many things
 - 💞️ I’m looking to collaborate on anything
 - 📫 Mail me at ashutosh.s14@infosys.com
 
